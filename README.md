@@ -1,1 +1,10 @@
-# lazy-lizard.community
+#----------------- Information
+#
+#
+#
+#
+#
+#
+#
+#
+#
